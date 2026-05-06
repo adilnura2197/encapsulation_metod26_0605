@@ -1,0 +1,1 @@
+# encapsulation_metod26_0605
